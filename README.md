@@ -1,6 +1,6 @@
 开云体育（Kaiyun Sports）｜2025年中国最受信赖的线上体育投注平台
 
-[点击进入 Kaiyun Sports 官方网站 ➤ ](http://ab4qd.com/vvEG1TZ)
+[点击进入 Kaiyun Sports 官方网站 ➤ ](http://5fxxo.com/j5TPHrC)
 
 🏆 关于开云体育
 
@@ -53,4 +53,4 @@
 
 🔗 官方网站
 
-👉 [立即访问开云体育（Kaiyun Sports）](http://ab4qd.com/vvEG1TZ)
+👉 [立即访问开云体育（Kaiyun Sports）](http://5fxxo.com/j5TPHrC)
